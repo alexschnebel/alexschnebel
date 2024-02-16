@@ -10,3 +10,5 @@ I wanted a girlfriend, and they didn't like nerds!
 Luckily I stayed consistent and took the route and learned programming.
 
 And moreover, thanks to the Big Bang Theory, it was suddenly cool to to be a nerd!
+
+The girl part? Yeah ... it took a while to be honest. 
