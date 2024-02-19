@@ -14,5 +14,3 @@ And moreover, thanks to the Big Bang Theory, it was suddenly cool to to be a ner
 The girl part? Yeah ... it took a while to be honest. 
 
 Now 16 years later, I'm a happy father of 2 kids, husband, and Software Engineer.
-
-The End. 🙇‍♂️
